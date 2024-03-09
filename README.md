@@ -1,6 +1,6 @@
 # 💫 About Me:
 🌱I am currently learning
- I regularly uploaded vedio on my you channel
+ I regularly uploaded video on my you channel
  Reach out to me at prakrathishetty7896@gmail.com
 
 ## 🌐 Socials:
