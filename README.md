@@ -1,6 +1,7 @@
 # 💫 About Me:
-I am currently learning
-
+🌱I am currently learning
+ I regularly uploaded vedio on my you channel
+ Reach out to me at prakrathishetty7896@gmail.com
 
 ## 🌐 Socials:
 [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/Prakrathi k shetty) [![YouTube](https://img.shields.io/badge/YouTube-%23FF0000.svg?logo=YouTube&logoColor=white)](https://youtube.com/@Prakrathi_kudla) 
